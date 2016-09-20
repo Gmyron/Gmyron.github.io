@@ -1,1 +1,0 @@
-# gmyron.github.io
